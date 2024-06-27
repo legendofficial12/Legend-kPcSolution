@@ -1,4 +1,4 @@
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=Hey!+This+is+Vivek+Tomar;+Known+For+Batch+Extraction+;Its+Just+Not+a+Name+Bro+;Its+a+Brand)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=Hey!+This+is+Legend+official;+Known+For+Batch+Extraction+;Its+Just+Not+a+Name+Bro+;Its+a+Brand)](https://git.io/typing-svg)
 
 </p>
 
